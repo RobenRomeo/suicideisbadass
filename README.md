@@ -1,0 +1,2 @@
+# suicideisbadass
+ayayayayaaayayaayayay
